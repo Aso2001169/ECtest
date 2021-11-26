@@ -5,5 +5,6 @@ phpの授業
 niha
 jajajaj
 mamama
+kakakaka
 お腹すいた
 aaaaaa
